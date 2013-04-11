@@ -20,5 +20,5 @@ Cho jae yeon
   w;lkfj;alskdjf;lkja;
   dkjflksj;lkjl;zcxvl;ekr;lfkjla;skdn;vlks;fk
 
-**I really want to try a venture **
+**I really want to try a venture**
 
