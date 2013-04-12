@@ -9,8 +9,12 @@ Cho, jae yeon
 Who am I?
 =========
  - My name is *jaeyeon Cho.* 
-I want to make a social venture company
-And I will study 'IT Based healthcare' during 2~3grades
+I want to make a social venture company.
+And I will study 'IT Based healthcare' during 2~3grades.
+When i was young, I paid attention about return the value for society, law, politics.
+But now I'm in University of science & technology.
+So, I want to make a return for society as my knowledge, technology(detailed biomedical engineering & healthcare).
+This is me.
 
 
 
