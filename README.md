@@ -1,4 +1,4 @@
-j186cm85kg@postech.ac.kr
+E-mail, skype : j186cm85kg@postech.ac.kr
 ======
 
 Cho, jae yeon
