@@ -1,10 +1,10 @@
 Cho, jae yeon
 =============
-Date of Birth : 02/February/1994
-Address : Dorm21-713, POSTECH, Jigok-dong, Nam-gu, Pohang, Gyeongbuk, South Korea
-Cell Phone : +82 10 4746 6878
-E-mail : j186cm85kg@postech.ac.kr
-skype : j186cm85kg@postech.ac.kr
+ - Date of Birth : 02/February/1994
+ - Address : Dorm21-713, POSTECH, Jigok-dong, Nam-gu, Pohang, Gyeongbuk, South Korea
+ - Cell Phone : +82 10 4746 6878
+ - E-mail : j186cm85kg@postech.ac.kr
+ - skype : j186cm85kg@postech.ac.kr
 
 
 
